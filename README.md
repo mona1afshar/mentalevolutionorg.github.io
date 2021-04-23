@@ -1,1 +1,1 @@
-# mentalevolutionorg.github.io
+# mentalevolutionorg.com
